@@ -1,1 +1,1 @@
-# king_qq
+because of smone issue am going to home today
